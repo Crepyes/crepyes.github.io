@@ -1,5 +1,5 @@
 # Crepyes.github.io
-I do things for fun, sometimes.
+I will probably update this, someday.
 idfk why i even made this page, maybe ill do something with it in the future idk
 
 
