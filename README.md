@@ -1,4 +1,4 @@
-# Crepyes.github.io
+# Website by some idiot called "Crepyes"
 I will probably update this, someday.
 idfk why i even made this page, maybe ill do something with it in the future idk
 
